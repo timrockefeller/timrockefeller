@@ -4,4 +4,6 @@
 
 中文 可、English OK，日本語 ギリギリ。
 
+![:timrockefeller](https://count.getloli.com/get/@:timrockefeller)
+
 [茶水间](https://iik.moe)
