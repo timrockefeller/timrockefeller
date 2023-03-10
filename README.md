@@ -18,4 +18,5 @@
   
 <a href="http://bgm.tv/user/timrockefeller"><img src="http://bgm.tv/chart/img/217767" border="0" alt="海茶子染 的个人主页" /></a>
 
+[![bangumi](https://bangumi-mosaic-tile.aho.im/users/timrockefeller/timelines/subject.svg)](http://bgm.tv/user/timrockefeller)
 </div>
